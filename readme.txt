@@ -1,0 +1,1 @@
+da aggiungere foto oscilloscopio e diagramma funzionamento bici
